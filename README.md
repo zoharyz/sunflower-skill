@@ -95,7 +95,7 @@ This isn't just software.
 It's a memory.
 It's a symbol.
 It's an inside joke.
-It's a little piece of your relationship.
+It's a little piece of our relationship.
 
 Typing:
 
